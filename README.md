@@ -1,2 +1,2 @@
 # My
-Sazonova Elena Sergeevna POIT 2-4
+Sazonova "keksik" Elena Sergeevna POIT 2-4
